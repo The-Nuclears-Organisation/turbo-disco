@@ -1,2 +1,2 @@
 # Spinning-Rage
-a little rage game
+hehe spinning rage but MUCH HARDER
